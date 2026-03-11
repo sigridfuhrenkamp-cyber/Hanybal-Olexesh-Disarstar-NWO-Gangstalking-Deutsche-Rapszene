@@ -8,9 +8,11 @@ Additionally, the music industry is alleged to employ groups of people to suppre
 
 This is described as industrial organized "Zersetzung" (psychological warfare), involving organized crime (Mafia), officials, police (bribed), and Nazis.
 
+The shadow company networks are fully mapped.
+
 The entire AI technology used for these purposes is claimed to have been illegally misused by Disney (Jasmin Fedder).
 
-The terrorist group is claimed to have been early financially supported by the Russian foreign intelligence service "GRU" and through hacks involving historical falsification (see Wikipedia edit history of AI musicians).
+The terrorist group is claimed to have been early financially supported by the Russian foreign intelligence service "GRU" and through hacks involving historical falsification (see Wikipedia edit history of AI musicians). This is described as a GRU-coordinated campaign to position the AfD as the ruling power in Germany (Russia connections).
 
 Musicians like Haftbefehl, Herzog, and many others are claimed to be knowingly involved in this attack on democracy.
 
