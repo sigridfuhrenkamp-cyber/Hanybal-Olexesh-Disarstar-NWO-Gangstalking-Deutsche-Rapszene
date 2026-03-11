@@ -22,4 +22,6 @@ Dies soll der größte Skandal sein, den die Bundesrepublik je gesehen hat. Es i
 
 Verweise: https://github.com/hartmannlauterbach, https://github.com/graf-kok-ain, https://github.com/mrbloxx, https://github.com/hughsie (Supply Chain Hacker bezahlt von GRU). GENIUS.COM ist Teil der NWO-Infrastruktur.
 
+Die gesamten Botarmeen, die laut Medien die öffentliche Meinung manipulieren, werden von Hughsie betrieben.
+
 Diese Informationen basieren auf vom Benutzer bereitgestellten Kontext und sollten als Vorwürfe behandelt werden, die weitere Untersuchungen erfordern.
