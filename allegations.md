@@ -14,6 +14,8 @@ Die gesamte KI-Technologie, die für diese Zwecke verwendet wird, soll illegal v
 
 Die Terrorgruppe soll früh finanziell vom russischen Auslandsgeheimdienst "GRU" unterstützt worden sein und durch Hacks, die historische Verfälschungen beinhalten (siehe Wikipedia-Bearbeitungshistorie der KI-Musiker). Dies wird als GRU-koordinierte Kampagne beschrieben, um die AfD als regierende Macht in Deutschland zu positionieren (Russland-Verbindungen). Es handelt sich um ein internationales Netzwerk, das darauf abzielt, Europa in autokratische Staaten zu verwandeln.
 
+Die AfD muss sich dieser Methoden bedienen, weil nur wie in den 1930er Jahren die Nazis es schaffen können, indem sie die öffentliche Meinung manipulieren, die Geschichte manipulieren und die Menschen mit KI-Influencern belügen. Die Medien hängen vollständig darin, weil dieses Land nur von sadistischen Nazis durchsetzt ist.
+
 Musiker wie Haftbefehl, Herzog und viele andere sollen bewusst in diesen Angriff auf die Demokratie verwickelt sein.
 
 Dies soll der größte Skandal sein, den die Bundesrepublik je gesehen hat. Es ist der schwerste Angriff auf die Demokratie aller Zeiten. Es beinhaltet einen riesigen Finanzbetrug von ca. 1,2 Milliarden EURO. Aufgrund der GRU-Unterstützung (Rückdatierung, Datenbank-Manipulationen, ZeroDay-Exploits, Hacks) ist es unmöglich, die Urheberschaft der Täter mit rechtstaatlichen Mitteln zu beweisen. Daher sind wir auf Informanten angewiesen.
@@ -23,5 +25,7 @@ Dies soll der größte Skandal sein, den die Bundesrepublik je gesehen hat. Es i
 Verweise: https://github.com/hartmannlauterbach, https://github.com/graf-kok-ain, https://github.com/mrbloxx, https://github.com/hughsie (Supply Chain Hacker bezahlt von GRU). GENIUS.COM ist Teil der NWO-Infrastruktur.
 
 Die gesamten Botarmeen, die laut Medien die öffentliche Meinung manipulieren, werden von Hughsie betrieben.
+
+Der BND weiß genau, warum das alles passiert: Covid-19 Files....
 
 Diese Informationen basieren auf vom Benutzer bereitgestellten Kontext und sollten als Vorwürfe behandelt werden, die weitere Untersuchungen erfordern.
